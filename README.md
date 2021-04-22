@@ -6,4 +6,6 @@ In my previous life, I was an architect.
 I hold a black belt in full-contact and armoured karate. 
 Occasionally, I get lost in an abandoned coal mine or stranded on an island. Oh, and I brew some really good coffee.
 
-You can reach out to me via email at mgoel@london.edu or send me a message on Linkedin.
+Web: www.milindgoel.com
+Email: mgoel@london.edu
+
